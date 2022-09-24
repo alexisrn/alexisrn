@@ -5,3 +5,8 @@
 
 Apaixonado por games e tecnologia, no front-end foi onde me encontrei e desde então estou a procura da minha primeira oportunidade como front-end. 
 Sou um cara que adora desafios e novas aventuras.
+
+Contatos:
+
+Email: alexis.raphael95@gmail.com
+Tel: (11) 95391-8840
